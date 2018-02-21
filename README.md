@@ -1,5 +1,6 @@
 # Aula2.1
-Aula-terça-20/02/2018
+Robert Downey Jr.
 Chris Evans
 Samuel L Jackson
 Scarlett Johansson
+Chris Hemsworth
